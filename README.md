@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sandeep765002
 - 👀 I’m interested in codeing,trading
 - 🌱 I’m currently learning more codeing 
-- 💞️ I’m looking to collaborate on motor company 
+ 
 - 📫 How to reach me sandeep765002@gmail.com
 
 <!---
