@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sandeep765002
-- 👀 I’m interested in codeing,trading
+- 👀 I’m interested in codeing
 - 🌱 I’m currently learning more codeing 
  
 - 📫 How to reach me sandeep765002@gmail.com
